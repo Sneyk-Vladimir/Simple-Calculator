@@ -1,1 +1,1 @@
-# Free to usetemplate
+# Free to use template
